@@ -1,4 +1,4 @@
-# On discovering the hidden powers of writing
+# The hidden powers of writing
 
 > September 19, 2026
 
